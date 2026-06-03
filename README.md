@@ -1,3 +1,6 @@
+Vote in artistic competition
+https://peoplesartist.org/2026/lorraine-kealey
+
 YouTube Video
 https://youtu.be/7VJxL71Oksc?si=zPD-7UPGPzAmIj-6
 
